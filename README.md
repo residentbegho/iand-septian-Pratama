@@ -1,2 +1,3 @@
-# iand-septian-Pratama
-yes
+# residentbegho
+
+https://adsbypasser.github.io/
